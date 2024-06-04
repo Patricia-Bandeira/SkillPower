@@ -1,4 +1,4 @@
-Guilherme Mateus Teixeira Guimarães 
+Guilherme Mateus Teixeira Guimarães - https://www.linkedin.com/in/guilherme-guimar%C3%A3es-9374531b9?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app
 Hercules Rodriguesdos Santos
 Leonardo Miranda de Toledo - https://www.linkedin.com/in/leonardo-miranda-de-toledo-ab8a691b5?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app
 Patrícia Bandeira de Souza
