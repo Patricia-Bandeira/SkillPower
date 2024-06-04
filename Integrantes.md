@@ -12,5 +12,5 @@ Leonardo Miranda de Toledo - https://www.linkedin.com/in/leonardo-miranda-de-tol
 Patrícia Bandeira de Souza - 
 <a href="https://www.linkedin.com/in/patr%C3%ADcia-bandeira-9b6035229/" target="_blank"><img src="https://img.shields.io/badge/-LinkedIn-%230077B5?style=for-the-badge&logo=linkedin&logoColor=white" target="_blank"></a> 
 
-Waldennir Oliveira Vieira - https://www.linkedin.com/in/waldenir-vieira-321109a8?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app
-<a href="https://https://www.linkedin.com/in/waldenir-vieira-321109a8?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app/" target="_blank"><img src="https://img.shields.io/badge/-LinkedIn-%230077B5?style=for-the-badge&logo=linkedin&logoColor=white" target="_blank"></a> 
+Waldenir Oliveira Vieira - https://www.linkedin.com/in/waldenir-vieira-321109a8?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app
+<a href="https://https://www.linkedin.com/in/waldenir-vieira-321109a8/" target="_blank"><img src="https://img.shields.io/badge/-LinkedIn-%230077B5?style=for-the-badge&logo=linkedin&logoColor=white" target="_blank"></a> 
